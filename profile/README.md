@@ -1,1 +1,1 @@
-## "Every shot, every move, and every game should be an unforgettable adventure"
+## We a random (and cool) roblox group with passion for roblox development :)
